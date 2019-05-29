@@ -18,6 +18,8 @@ i'll write ya
 nothing dead yet so don't
 cross your eyes ya
 
+just yet
+
 fucking get erased
 fucking get erased ya
 folding into rays
