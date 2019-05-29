@@ -26,11 +26,14 @@ folding into rays
 fucking god fucking dead fucking lies
 let it rise for days
 feel obliged
+falling into place
 
 if i were to...
 i'd get nothing done
 
 nothing done
+
+
 
 fucking god
 fucking dead
