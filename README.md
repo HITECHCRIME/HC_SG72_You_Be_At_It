@@ -7,7 +7,7 @@ https://www.youtube.com/watch?v=86toC0058l0
 
 ```
 
-Out to get ya
+out to get ya
 fucking gonna write ya
 fucking get it right ya
 fucking dead of blight ya ey
@@ -31,6 +31,7 @@ feel obliged
 if i were to...
 i'd get nothing done
 (falling into place)
+(let the life erase)
 
 nothing done
 nothing in your head
