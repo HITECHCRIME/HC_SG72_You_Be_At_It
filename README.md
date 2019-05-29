@@ -10,7 +10,7 @@ https://www.youtube.com/watch?v=86toC0058l0
 Out to get ya
 fucking gonna write ya
 fucking get it right ya
-fucking dead of blight ya
+fucking dead of blight ya ey
 
 fucking dead ya
 there's nothing in the script
@@ -20,7 +20,7 @@ cross your eyes ya
 
 just yet
 
-fucking get erased ya
+get erased ya
 fucking get erased ya
 folding into rays
 fucking god fucking dead fucking lies
@@ -34,8 +34,6 @@ i'd get nothing done
 
 nothing done
 nothing in your head
-
-
 fucking god
 fucking dead
 
