@@ -14,19 +14,19 @@ fucking dead of blight ya
 
 fucking dead ya
 there's nothing in the script
-i'll write ya
+i'll write
 nothing dead yet so don't
 cross your eyes ya
 
 just yet
 
-fucking get erased
+fucking get erased ya
 fucking get erased ya
 folding into rays
 fucking god fucking dead fucking lies
 let it rise for days
+(falling into place)
 feel obliged
-falling into place
 
 if i were to...
 i'd get nothing done
