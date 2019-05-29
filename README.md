@@ -25,11 +25,12 @@ fucking get erased ya
 folding into rays
 fucking god fucking dead fucking lies
 let it rise for days
-(falling into place)
+feel obliged
 feel obliged
 
 if i were to...
 i'd get nothing done
+(falling into place)
 
 nothing done
 nothing in your head
