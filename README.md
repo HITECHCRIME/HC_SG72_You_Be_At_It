@@ -47,7 +47,7 @@ fucking dead
 2
 
 out to get yeah
-fucking gonna write up xxxxxx
+fucking gonna write ya xxxxxx
 fucking get it right ya
 fucking world of blight ya (ey)
 fucking dead yeah
@@ -61,7 +61,7 @@ get erased yeah
 fucking get erased yeah
 stepping into race yeah
 fucking loss fucking death fucking life
-let them bluff for days xxxxxxxx
+let them blind for days xxxxxxxx
 feel obliged (like it's yours)
 feel obliged
 
