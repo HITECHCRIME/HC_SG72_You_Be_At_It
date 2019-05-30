@@ -80,7 +80,7 @@ fucking dead yeah
 serpents crawling in the crypts (crib)
 i'll smite                       
 nothing touched yet so don't
-turn your eyes ya (close)
+turn your eyes ya (close) (cringe)
 just yet
 
 get erased yeah
