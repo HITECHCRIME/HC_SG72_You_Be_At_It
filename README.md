@@ -22,7 +22,7 @@ get erased yeah
 fucking get erased yeah
 folding into rays yeah
 fucking god fucking dead fucking lies
-let it (him) rise for days
+let them rise for days
 feel obliged
 feel obliged
 if i were to...
@@ -77,7 +77,7 @@ fucking gonna write up
 fucking get it right ya
 fucking victim's plight ya (ey)
 fucking dead yeah
-serpents crawling in the crypts (crib)
+serpents crawling (knawing at the crypts (crib)
 i'll smite                       
 nothing touched yet so don't
 turn your eyes ya (close) (cringe)
