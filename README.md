@@ -57,13 +57,13 @@ nothing seen yet so don't
 trust your eyes ya 
 just yet
 
-get erased yeah xxxxxxx
-fucking get erased yeah xxxxxxx
+get erased yeah
+fucking get erased yeah
 stepping into race yeah
-fucking loss fucking death fucking life xxxxxxx
+fucking loss fucking death fucking life
 let them bluff for days xxxxxxxx
-feel obliged (like it's yours) xxxxxxx
-feel obliged xxxxxxx
+feel obliged (like it's yours)
+feel obliged
 
 if i were to...
 i'd get nothing done
@@ -94,5 +94,5 @@ feel obliged
 if i were to...
 i'd get nothing done
 nothing done
-
+(it's allright)
 
