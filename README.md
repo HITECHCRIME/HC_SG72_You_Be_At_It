@@ -10,7 +10,7 @@ https://www.youtube.com/watch?v=86toC0058l0
 out to get yeah
 fucking gonna write ya
 fucking get it right ya
-fucking world of blight ya (ey)
+fucking dead of blight ya (ey)
 fucking dead yeah
 there's nothing in the script
 i'll write
@@ -22,7 +22,7 @@ get erased yeah
 fucking get erased yeah
 folding into rays yeah
 fucking god fucking dead fucking lies
-let it rise for days
+let it (him) rise for days
 feel obliged
 feel obliged
 if i were to...
@@ -41,14 +41,39 @@ nothing in your head
 fucking god
 fucking dead
 
+2
+
+out to get yeah xxxxxxx
+fucking gonna write up xxxxxxxxxx
+fucking get it right ya xxxxxxxx
+fucking victim's plight ya (ey)
+fucking dead yeah xxxxxxxx
+there's nothing in this world
+i like
+nothing seen yet so don't
+trust your eyes ya
+just yet
+
+get erased yeah xxxxxxx
+fucking get erased yeah xxxxxxx
+stepping into race yeah
+fucking loss fucking death fucking life xxxxxxx
+let them bluff for days xxxxxxxx
+feel obliged (like it's yours) xxxxxxx
+feel obliged xxxxxxx
+
+if i were to...
+i'd get nothing done
+
+3
 
 out to get yeah
 fucking gonna write up
 fucking get it right ya
-fucking dead of blight ya (ey)
+fucking world of blight ya (ey)
 fucking dead yeah
-maggots crawling in the crypts
-i'll write
+serpents crawling in the crypts (crib)
+i'll smite                       
 nothing seen yet so don't
 trust your eyes ya
 just yet
