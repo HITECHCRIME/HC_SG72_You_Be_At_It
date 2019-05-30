@@ -62,6 +62,8 @@ let them bluff for days xxxxxxxx
 feel obliged (like it's yours) xxxxxxx
 feel obliged xxxxxxx
 
+(allright)
+
 if i were to...
 i'd get nothing done
 
