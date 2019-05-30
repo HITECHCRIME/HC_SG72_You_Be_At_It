@@ -27,6 +27,9 @@ feel obliged
 feel obliged
 if i were to...
 i'd get nothing done
+nothing done
+(it's allright)
+
 (falling into place)
 
 (let the life erase)
@@ -43,15 +46,15 @@ fucking dead
 
 2
 
-out to get yeah xxxxxxx
-fucking gonna write up xxxxxxxxxx
-fucking get it right ya xxxxxxxx
-fucking victim's plight ya (ey)
-fucking dead yeah xxxxxxxx
+out to get yeah
+fucking gonna write up
+fucking get it right ya
+fucking world of blight ya (ey)
+fucking dead yeah
 there's nothing in this world
 i like
 nothing seen yet so don't
-trust your eyes ya
+trust your eyes ya 
 just yet
 
 get erased yeah xxxxxxx
@@ -62,28 +65,28 @@ let them bluff for days xxxxxxxx
 feel obliged (like it's yours) xxxxxxx
 feel obliged xxxxxxx
 
-(allright)
-
 if i were to...
 i'd get nothing done
+nothing done
+(it's allright)
 
 3
 
 out to get yeah
 fucking gonna write up
 fucking get it right ya
-fucking world of blight ya (ey)
+fucking victim's plight ya (ey)
 fucking dead yeah
 serpents crawling in the crypts (crib)
 i'll smite                       
-nothing seen yet so don't
-trust your eyes ya
+nothing touched yet so don't
+turn your eyes ya (close)
 just yet
 
 get erased yeah
 fucking get erased yeah
 falling into place yeah
-fucking loss fucking death fucking life
+fucking toss fucking death fucking life
 let them bluff for days
 feel obliged (like it's yours)
 feel obliged
