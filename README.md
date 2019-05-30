@@ -10,7 +10,7 @@ https://www.youtube.com/watch?v=86toC0058l0
 out to get yeah
 fucking gonna write ya
 fucking get it right ya
-fucking dead of blight ya (ey)
+fucking world of blight ya (ey)
 fucking dead yeah
 there's nothing in the script
 i'll write
