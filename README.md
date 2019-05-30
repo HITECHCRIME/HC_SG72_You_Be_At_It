@@ -86,12 +86,13 @@ just yet
 get erased yeah
 fucking get erased yeah
 falling into place yeah
-fucking toss fucking death fucking life
+fucking toss fucking breath fucking die
 let them bluff for days
 feel obliged (like it's yours)
 feel obliged
 
 if i were to...
 i'd get nothing done
+nothing done
 
 
