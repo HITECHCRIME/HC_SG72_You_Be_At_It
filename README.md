@@ -6,7 +6,6 @@ https://www.youtube.com/watch?v=86toC0058l0
 ## Lyrics
 
 ```
-
 out to get yeah
 fucking gonna write ya (up)
 fucking get it right ya
