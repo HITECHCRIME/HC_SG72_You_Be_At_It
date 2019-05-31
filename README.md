@@ -8,7 +8,7 @@ https://www.youtube.com/watch?v=86toC0058l0
 ```
 
 out to get yeah
-fucking gonna write ya
+fucking gonna write ya (up)
 fucking get it right ya
 fucking dead of blight ya (ey)
 fucking dead yeah
@@ -44,10 +44,14 @@ nothing in your head
 fucking god
 fucking dead
 
+don't depressurize
+all i have left
+is hitech crime
+
 2
 
 out to get yeah
-fucking gonna write ya xxxxxx
+fucking gonna write ya xxxxxx (up)
 fucking get it right ya
 fucking world of blight ya (ey)
 fucking dead yeah
